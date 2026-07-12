@@ -1,1 +1,0 @@
-# qurantiva.online
